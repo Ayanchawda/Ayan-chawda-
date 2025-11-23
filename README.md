@@ -1,2 +1,2 @@
 # Ayan-chawda-
-Frontend Web Developer | Coding x Music 🎧💻 | Future Freelancer 🚀
+Frontend Web Developer | Obsessed with Coding & Music 🎧💻 | Building my future, one line of code at a time 🚀
